@@ -71,8 +71,8 @@ Ideal for:
 
 ## 📬 Contact
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/)  
-Or reach out by email: `your_email@example.com`
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/roshni-pillai-b34315318/)  
+Or reach out by email: `roshni.s.pillai11@gmail.com`
 
 ---
 
